@@ -13,4 +13,4 @@ mariana.carvalho.santana@escola.pr.gov.br
 
 mariana027
 
-![descrição do GIF](link GIF do Tenor)
+https://media.tenor.com/FhX-tful5GgAAAAC/stich.gif
